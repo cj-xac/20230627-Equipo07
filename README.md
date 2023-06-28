@@ -1,1 +1,1 @@
-Javier Xacur - José Caviedes- Vanessa Ruiz Gomez
+Javier Xacur - José Caviedes- Vanessa Ruiz Gomez - Fernando Aguas
